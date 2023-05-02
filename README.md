@@ -1,3 +1,5 @@
+<p align="center"><img src="https://github.com/BINOD-XD/RXS-SMS-BOMBER/blob/main/rxsbombing_2_15.png">
+
 ### What is Sms Bombing ?
 
 SMS Bombing is an attack where a large number of messages are sent to a particular number in a very short period of time, to harass a user or disrupt the normal working of a device.
