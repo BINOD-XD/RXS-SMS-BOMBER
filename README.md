@@ -13,7 +13,7 @@ USE THIS APPLICATION WITH YOUR OWN RISK. BECAUSE IT'S ILLEGAL.
 ### SMS + CALL MIX BOMBING
 
 ### Super Latest sms bombing (Recommend) 
-<a href="https://mega.nz/file/VrUgjSwa#vBGm8lArTqvyWkZN1Jox-eM9vFdKk6FXhKvXMsYRbsM?raw=true">DOWNLOAD</a>
+### 🔰 <a href="https://mega.nz/file/VrUgjSwa#vBGm8lArTqvyWkZN1Jox-eM9vFdKk6FXhKvXMsYRbsM?raw=true">DOWNLOAD</a>
   
 ### LATEST APK 2.1 ➔ <a href="https://github.com/BINOD-XD/RXS-SMS-BOMBER/blob/main/rxs.sms.bomber.2.1.apk?raw=true">DOWNLOAD</a>
 
